@@ -1,1 +1,4 @@
 # Consecuencias-de-las-sanciones-en-econom-as-emergentes
+Las sanciones económicas tienen un impacto devastador en los mercados emergentes. Estas medidas no solo afectan a los gobiernos, sino que también agravan la pobreza y la desigualdad en las poblaciones vulnerables. Al limitar el acceso a mercados y restringir inversiones, los países sancionados ven una caída en su PIB y una mayor crisis económica.
+A nivel político, las sanciones pueden generar una intensificación de la represión. Los gobiernos sancionados, bajo la presión internacional, utilizan métodos más coercitivos para mantener el control, lo que lleva a un aumento en las violaciones a los derechos humanos.
+Además, las sanciones también afectan la salud pública. Las restricciones económicas limitan el acceso a bienes y servicios esenciales, lo que incrementa la mortalidad infantil y reduce la esperanza de vida. Es esencial repensar la efectividad de estas medidas para minimizar el impacto humanitario.
